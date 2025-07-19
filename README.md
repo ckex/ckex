@@ -1,1 +1,1 @@
-Silence "my wife" Suzuka
+Silence *"my wife"* Suzuka
